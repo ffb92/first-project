@@ -1,8 +1,6 @@
 ## This is Readme File
 
 🚀
-fasdaga
-fasdagafasdagafasdagafasdagafasdagafasdaga
 
 [Find out more](https://google.com)
 

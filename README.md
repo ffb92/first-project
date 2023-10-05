@@ -2,8 +2,6 @@
 
 🚀
 
-fiuqadvbiausbdiouasvfpaeiugbüaodfbüaosdhbnaüsodboasd
-
 [Find out more](https://google.com)
 
 Learn in Progress
